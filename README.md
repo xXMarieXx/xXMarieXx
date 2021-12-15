@@ -1,0 +1,6 @@
+-Hi, I’m @xXMarieXx
+-I’m interested in alot of things
+-I’m currently learning a lot
+-I’m looking to collaborate on anything
+-How to reach me justtext me on zoom or whatever
+-send me whateveryou need help with :)
